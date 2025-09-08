@@ -1,2 +1,0 @@
-# crian-as-perdidas
-.
